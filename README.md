@@ -14,5 +14,5 @@
 
 📫 **Get in Touch**:  
 - LinkedIn: https://linkedin.com/in/karan-patel-58b193304/  
-- Email: karandpatel321@gmail.com  
+- Email: s0377009salemstate@gmail.com
 
